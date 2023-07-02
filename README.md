@@ -5,10 +5,9 @@ Come celebrate with us as we embark on a day filled with laughter, love, and unf
 So, save the date and get ready for an enjoyable celebration. Pack your camping essentials, and let's make this day unforgettable together.
 ## Date and Time
 
-## Location
+## Access
 
 ## Day party
 
 ## Camping
 
-## Logistics
