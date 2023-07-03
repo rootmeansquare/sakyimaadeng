@@ -4,8 +4,9 @@ To all our beautiful friends and family,
 
 We would like to cordially invite you to join our long-awaited engagement celebration. This special occasion is not only a celebration of our love but also a heartfelt expression of our gratitude to our friends and family who have watched and supported our friendship grow to where it is today. We couldn't have done it without you!
 
+
 Date: Sep 2 2023
-Time: Sep 2 15:00 - Sep 3 10:30 
+
 Location: Cape Taibusa Nature Park, Chiba
 
 
