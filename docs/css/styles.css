@@ -102,6 +102,7 @@ body {
   background-color: var(--bs-body-bg);
   -webkit-text-size-adjust: 100%;
   -webkit-tap-highlight-color: rgba(0, 0, 0, 0);
+  min-width: 420px;
 }
 
 hr {
@@ -10834,10 +10835,11 @@ textarea.form-control-lg {
 html {
   height: 100%;
   scroll-padding-top: calc(4.5rem - 1px);
+
 }
 
 .page-section {
-  padding: 6rem 0;
+  padding: 0 0;
 }
 .page-section .page-section-heading {
   font-size: 2.25rem;
