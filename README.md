@@ -53,7 +53,7 @@ Bus and Train options are around 3 hours and cost approximately 3000 JPY. Theref
 )
 
 
-From Shinjuku, take the JR Highway Bus to Tateyama Eki transfer to the Uchibo Line to Chitose station. We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30, 17:30. 
+From Shinjuku, take the JR Highway Bus to Tateyama Eki transfer to the Uchibo Line to Chitose station. We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30. 
 
 You can also walk 20 mins to the campsite but please keep in mind half the walk is uphill.
 
@@ -66,7 +66,7 @@ You can also walk 20 mins to the campsite but please keep in mind half the walk 
 
 From Shinjuku it takes 2 trains to get to Chitose station. The above link is the recomended route as its mostly all one train.
 
-We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30, 17:30. 
+We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30. 
 
 You can also walk 20 mins to the campsite but please keep in mind half the walk is uphill.
 
