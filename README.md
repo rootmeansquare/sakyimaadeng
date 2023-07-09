@@ -5,15 +5,15 @@ To all our beautiful friends and family,
 We would like to cordially invite you to join our long-awaited engagement celebration. This special occasion is not only a celebration of our love but also a heartfelt expression of our gratitude to our friends and family who have watched and supported our friendship grow to where it is today. We couldn't have done it without you!
 
 
-Date: Sep 2 2023
+Date: Sep 16 2023
 
-Location: Cape Taibusa Nature Park, Chiba
+Location: Orange Mura Auto Camping Ground, Chiba
 
 
 
 Please note that the campsite is located in a remote area and may take approximately 3 hours to reach by public transit. We encourage you to check the "access" section for detailed directions before RSVPing. Consider yourselves warned!
 
-We have arranged for delicious catering (shoutout to Thomas) and a wide selection of drinks to keep the party going all night long. Feel free to bring your camping gear, outdoor games, and fun little anecdotes to share.
+We have arranged for delicious catering (shoutout to Thomas) and a wide selection of drinks to keep the party going all night long. Bring your camping gear, outdoor games, and fun little anecdotes to share.
 
 We look forward to celebrating this joyous occasion, and toasting to more unforgettable memories.
 
@@ -24,39 +24,54 @@ Imaad & Saky
 
 ## Date and Time
 
-September 3rd 15:00 - September 4th 10:30
+September 16th 14:00 - September 17th 10:30
 
 
 ## Location
 
-Campsite 1
-Cape Taibusa Nature Park
-1212-29 Tomiuracho Tadara, Minamiboso, Chiba 299-2404
+Campsites 110-120
+Orange Mura Auto Camping Ground
+1494 Chikuracho Kubo, Minamiboso, Chiba 295-0001
 
-第1キャンプ場
-大房岬自然公園
-〒299-2404 千葉県南房総市富浦町多田良1212-29
+第112-120 キャンプ場
+オレンジ村オートキャンプ場
+〒295-0001 千葉県南房総市千倉町久保1494
+
+https://goo.gl/maps/31Ac43thyfBX9GYn9
 
 ## Access
 ### Carpool
-Bus and Train options are around 3 hours and cost approximately 3000 JPY. Therefore it is recomended that groups car pool instead and park overnight at the park.
+**Best Option**
+Bus and Train options are around 3 hours and cost approximately 3000 JPY. Therefore it is recomended that groups car pool instead.
 
-### Bus + Taxi - 2-3 hours
-From Shinjuku, take the JR Highway Bus to Tateyama Eki, get off at Tomiura Biwa Club. Take a Taxi (10mins) to the park, alternatively take a bus from the club to the park
+### Bus - 3.5 hours
 
-### Train + Taxi - 3-4 hours
-Find a train to Tomiura Station. Take a Taxi to the park (10 mins).
+https://goo.gl/maps/Zu5rB6Ntb5zJmTC46
+
+From Shinjuku, take the JR Highway Bus to Tateyama Eki transfer to the Uchibo Line to Chitose station. We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30, 17:30. 
+
+You can also walk 20 mins to the campsite but please keep in mind half the walk is uphill.
+
+### Train - 3.5 hours
+
+https://goo.gl/maps/WMwP6DdmMV524ruR7
+
+From Shinjuku it takes 2 trains to get to Chitose station. The above link is the recomended route as its mostly all one train.
+
+We will be running a small shuttle service to bring people from Chitose station to the camp site. Shuttle times: 14:00, 14:30, 15:30, 16:30, 17:30. 
+
+You can also walk 20 mins to the campsite but please keep in mind half the walk is uphill.
 
 
 ## Event
 
-15:00 - Arrive at campground, set up camp, walk around the grounds, play some spike ball and have fun
+14:00 - Arrive at campground, set up camp, look at some oranges, play some spike ball and have fun
 
-18:00-19:00 - Dinner is served
+17:00-19:00 - Dinner is served
 
-21:30 - Gather around the fire
+21:00 - Gather around the fire
 
-22:30 - Hanabi! 
+22:00 - Hanabi! 
 
 09:00 - A light breakfast; buffet style
 
